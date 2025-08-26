@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hey I'm Anmol:
 🔭 I’m currently working on Siksha AI<br>👯 I’m looking to collaborate on AI ML projects<br>🌱 I’m currently learning AI ML<br>💬 Ask me about hackathons and group projects<br>⚡ Fun fact: I am a Poet/Rapper.
 
 
